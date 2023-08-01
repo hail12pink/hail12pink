@@ -1,2 +1,1 @@
-- 👋 Hi, I’m 12pink
-- 👀 I’m interested in coding
+hewwo~ :3 (>w<)
